@@ -14,7 +14,7 @@
 
 ♡ · Mostly semi-afk/off-tab; W2i
 
-♡ · Cuds are OK!!
+♡ · Cuds and hugs are OK!!
 
 ♡ · Roleplay OK!! (Tell me before going into character, though.)
 
