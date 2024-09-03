@@ -16,7 +16,7 @@
 
 ♡ · Cuds and hugs are OK!! Stay with me for as long as you want. <3
 
-♡ · Roleplay OK!! (Tell me before going into character, though.)
+♡ · Roleplay OK, but I don't do that kind of thing often!! :,D
 
 <br> 
 
