@@ -10,7 +10,7 @@
 
 <br>
 
-˚₊‧꒰ა ☆ ໒꒱ ‧₊˚<i>Pony Town</i>
+˚₊‧꒰ა ☆ ໒꒱ ‧₊˚ <i>Pony Town</i>
 
 ♡ · Mostly semi-afk/off-tab; W2i
 
