@@ -16,10 +16,14 @@
 
 ♡ · Cuds and hugs are OK!! Stay with me for as long as you want. <3
 
-♡ · Roleplay OK, but I don't do that kind of thing often!! :,D
-
 <br> 
+
+˚₊‧꒰ა ☆ ໒꒱ ‧₊˚ <i>Some more to add:</i>
+
+♡ · I DO NOT support Rox and their actions. Please do not talk to me about it!
+
+<br>
 
 ˚₊‧꒰ა ☆ ໒꒱ ‧₊˚
 
-<i>Will add more in the future.</i>
+<i>Will add more in the future</i>
