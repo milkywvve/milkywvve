@@ -6,7 +6,7 @@
 
 ♡ · Any pronouns, except it/its
 
-♡ · Shelly kin, somewhat
+♡ · Shelly kin (Dandy's World) somewhat
 
 <br>
 
