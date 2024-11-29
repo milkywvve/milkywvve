@@ -6,8 +6,6 @@
 
 ♡ · Any pronouns, except it/its
 
-♡ · Shelly kin (Dandy's World) somewhat
-
 <br>
 
 ˚₊‧꒰ა ☆ ໒꒱ ‧₊˚ <i>Pony Town</i>
@@ -28,4 +26,4 @@
 
 ˚₊‧꒰ა ☆ ໒꒱ ‧₊˚
 
-<i>Will add more in the future</i>
+<i>Will add more in the future. Thanks for stopping by <3 </i>
