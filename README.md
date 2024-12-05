@@ -14,8 +14,6 @@
 
 ♡ · Cuds and hugs are OK!! Stay with me for as long as you want. <3
 
-♡ · Whisper to int <3 Ship int also ok!!
-
 <br> 
 
 ˚₊‧꒰ა ☆ ໒꒱ ‧₊˚ <i>Some more to add:</i>
